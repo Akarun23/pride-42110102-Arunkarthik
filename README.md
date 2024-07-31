@@ -1,1 +1,1 @@
-# pride-42110102-Arunkarthik
+# pride-Arunkarthik
